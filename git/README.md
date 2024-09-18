@@ -1,1 +1,1 @@
-Simeon is troublesome
+Starting to code today, so cool
